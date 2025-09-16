@@ -1,0 +1,3 @@
+O Autômato é uma sub raça de [[Constructo]]. Criados a partir do estudo da [[Maginologia]], os Autômatos são criaturas desenvolvidas pela [[Escola de Maginologia de Dranera]] para servirem como agentes trabalhadores de [[Dranera]]. 
+
+Seu formato normalmente se parece com o de um [[Humanoide]] - um bípede com uma cabeça e um tórax. Normalmente de cor dourada, os autômatos são capazes de falar, pensar e agir. Normalmente pré-programados para servir a um propósito, os autônomos se tornaram ferramentas essenciais para Dranera, após o fim da [[Guerra de Felissys]].
