@@ -1,1 +1,0 @@
-Ladinos são mestres da furtividade, do improviso e da astúcia. Atuando nas sombras, eles usam inteligência afiada e reflexos rápidos para dominar situações — seja invadindo fortalezas, desarmando armadilhas ou enganando adversários
