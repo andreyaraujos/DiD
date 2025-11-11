@@ -1,7 +1,7 @@
 ## Jogo
 ### Sessões
-- Sessão 00 - Resultado
-- Sessão 01 - Resultado
+- [Sessão 00](https://github.com/andreyaraujos/DiD/blob/main/Jogo/Sess%C3%B5es/Sess%C3%A3o%2000%20-%20Resultado.md)
+- [Sessão 01](https://github.com/andreyaraujos/DiD/blob/main/Jogo/Sess%C3%B5es/Sess%C3%A3o%2001%20-%20Resultado.md)
 ## Mundo
 ### História
 #### Artefatos, armas e objetos
