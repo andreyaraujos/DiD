@@ -1,0 +1,18 @@
+Tibério Bolofim é um [[Gnomo]] [[Caçador]], nascido em Sagara, mas passou a maior parte de sua vida na região rural de Ornamental. Sua família foi obrigada a fugir do domínio de Felizis, depois de anos de exploração em trabalhos exaustivos. O pai, já sem forças para continuar, decidiu abandonar a cidade em busca de um futuro melhor.
+
+## Também conhecido como
+- Bolo fofo (pejorativo)
+## Origem
+Durante o período em que viveram como fugitivos, Tibério aprendeu cedo a caçar e sobreviver, habilidades que o acompanharam até a vida adulta. Nessa época, chegou a perder-se por três dias em uma floresta, sobrevivendo apenas de raízes e água de chuva — experiência que marcou profundamente sua visão sobre resistência e improviso.
+
+Com o tempo, a família conseguiu se estabelecer em Ornamental, aplicando o talento natural dos gnomos da rocha na construção e na engenharia para otimizar a produção de vinho. Dessa iniciativa nasceu a vinícola da família: os Vinhos Bolofim, que prosperaram e conquistaram influência no comércio local. Ainda jovem, Tibério ajudava a organizar barris e experimentava combinações curiosas de ervas com vinho, o que rendeu alguns sabores peculiares (e até indigestos) que divertiam os clientes mais ousados.
+
+Graças à reputação dos Vinhos Bolofim, Tibério obteve uma vaga na Universidade de Dranera, onde decidiu estudar alquimia e botânica, preparando-se para um dia herdar os negócios da família, já que seus pais, com 350 anos, começavam a dar sinais de cansaço. Porém, seus estudos o levaram além: descobriu a Maginologia e o poder da mana líquida como combustível, iniciando pesquisas promissoras sob a orientação da professora Claudia.
+
+Durante a universidade, Tibério também se envolveu em pequenos clubes de pesquisa paralelos, alguns oficiais, outros clandestinos. Foi em um deles que quase incendiou um armazém ao tentar criar um extrato inflamável de flores do pântano, episódio que até hoje é contado em tom de piada pelos colegas.
+
+Apesar de não ser o aluno mais aplicado, a curiosidade de Tibério sempre se sobrepõe ao bom senso. Sua habilidade em alquimia e botânica já foi responsável por algumas evacuações no laboratório, e embora não seja frequentador assíduo das festas, acaba convidado para preparar bebidas — aproveitando sua facilidade em manipular extratos de plantas com efeitos inusitados. Em certa ocasião, acidentalmente serviu uma bebida que fez um grupo de estudantes falar em rimas por três dias consecutivos.
+
+Em paralelo, Tibério manteve sua ligação com a família, retornando a Ornamental em alguns períodos para ajudar nas colheitas. Numa dessas visitas, desenvolveu um inseticida alquímico à base de extratos de ervas raras, capaz de afastar pragas sem prejudicar as videiras. O produto, embora de cheiro forte e considerado “meio fedorento” pelos trabalhadores, aumentou significativamente a qualidade da safra e se tornou motivo de orgulho para seus pais.
+
+Hoje, Tibério participa de uma pesquisa de campo ao lado de [[Revgar Martelgranito]], investigando o uso da mana líquida em diferentes regiões. A expedição já passou por Dranera e Scumbria — onde enfrentou um frio rigoroso —, e agora segue para Testranes, em busca de rumores sobre um produto com propriedades semelhantes à mana líquida. Tibério anota tudo em um diário de couro gasto, que pretende transformar em um livro de estudos — ou, quem sabe, em memórias de suas aventuras.
